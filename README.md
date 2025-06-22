@@ -23,7 +23,7 @@ la sobriedad y pensamientos,</br>
 dieron fuerza a esta falacia.</br>
 </br>
 Vienen de la mano el querer y no hacer,</br>
-ahora hago como que no quiero,</br>
+un pensamiento se me pega,</br>
 el demonio en la oreja,</br>
 que si no le doy, se queja,</br>
 si le doy, en paz me deja,</br>
